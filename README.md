@@ -14,7 +14,7 @@
 <<<<<<< HEAD
  ___
  Mais revenons au sujet de la pâtisserie et de la Belgique...   
- Astérix et Obélix ont-ils gouté les gaufres belges ?   
+ Astérix et Obélix ont-ils gouté les gauffres belges ?   
  Ou ont-ils découvert seulement la bière ?  
  Ceci est la question !
  ____
@@ -23,6 +23,6 @@
 
 ______
 #asterix/obelix
-ces deux hommes partent en belgique et découvrent la gran variété de la bière belge.
+Ces deux hommes partent en belgique et découvrent la grande variété de la bière belge.
 ###Depuis ce jour là il ont jamais la belgique. 
 >>>>>>> 7d454d60a39e6c4250f172fcd408138a9ec3e6e7
