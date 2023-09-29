@@ -9,4 +9,4 @@
   Alors, Albert regarda Tartine avec avec un grand sourire.
   Et voila!!
   C' est à partir de là que Tartine et Albert deveinrent les mailleurs amis du monde.
-  
+ un groupe de lapin, ils avaient comme lui très très faim, le canard pris peur car il avait peur qu'ils s'en prennent à lui, il prit donc la fuite avec le peu d'energie qui lui restait et soudain...
