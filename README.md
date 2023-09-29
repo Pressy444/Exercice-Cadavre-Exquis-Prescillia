@@ -5,5 +5,8 @@
   ils la regardent avec dégout.
   Mais pourquoi sont ils aussi méchants avec elle?
   Un jour, alors que la tartine s'ennuyait,
-  "Alphonse", un moucheron diabétique passait par là...
+  "Albert", un moucheron diabétique passait par là...
+  Alors, Albert regarda Tartine avec avec un grand sourire.
+  Et voila!!
+  C' est à partir de là que Tartine et Albert deveinrent les mailleurs amis du monde.
   
