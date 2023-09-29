@@ -1,3 +1,4 @@
+
 # Exercice-Cadavre-Exquis-Prescillia
   Il était une fois une tartine pourrie,
   personne ne l'aimait.
@@ -10,3 +11,10 @@
   Et voila!!
   C' est à partir de là que Tartine et Albert deveinrent les mailleurs amis du monde.
  un groupe de lapin, ils avaient comme lui très très faim, le canard pris peur car il avait peur qu'ils s'en prennent à lui, il prit donc la fuite avec le peu d'energie qui lui restait et soudain...
+ ___
+ Mais revenons au sujet de la pâtisserie et de la Belgique...   
+ Astérix et Obélix ont-ils gouté les gaufres belges ?   
+ Ou ont-ils découvert seulement la bière ?  
+ Ceci est la question !
+ ____
+
